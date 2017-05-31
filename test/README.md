@@ -1,1 +1,1 @@
-deneme
+başka bir deneme
